@@ -1,1 +1,1 @@
-My first readme
+God will see me through
